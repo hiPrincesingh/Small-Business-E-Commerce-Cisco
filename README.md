@@ -53,3 +53,7 @@ the private IP address.
 6. Conclusion
 7. References
 ```
+
+![ScreenShot 1](https://github.com/hiPrincesingh/Small-Business-E-Commerce-Cisco/blob/main/1.jpg)
+![ScreenShot 2](https://github.com/hiPrincesingh/Small-Business-E-Commerce-Cisco/blob/main/2.jpg)
+![ScreenShot 3](https://github.com/hiPrincesingh/Small-Business-E-Commerce-Cisco/blob/main/3.jpg)
