@@ -57,7 +57,7 @@ the private IP address.
 ```
 
 
-# ☎️ Contact to BUY the project @299/- Rupees Only ☎️
+# ☎️ Contact to BUY the project just @299/- Rupees Only ☎️
 ##  Whatsapp        - +91 7309233501 
 ##  E-Mail          - spyfact0@gmail.com 
 
